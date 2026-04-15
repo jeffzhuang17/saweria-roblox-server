@@ -1,1 +1,0 @@
-# saweria-roblox-server
